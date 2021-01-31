@@ -14,7 +14,7 @@ Found this recipe at [Serious Eats](https://www.seriouseats.com/recipes/2016/01/
 * 1 pound finely shredded cabbage (about 1 medium head; 450g)
 * 2 tablespoons (30ml) whole grain mustard
 * 1/2 cup (120ml) apple cider vinegar
-* 3 cups (700ml) homemade or store-bought low-sodium chicken stock
+* 2 cups (700ml) homemade or store-bought low-sodium chicken stock (Original recipe calls for 3 but I think the cabbage has enough liquid as is, use thy own judgement)
 * 3 tablespoons sugar
 * 2 bay leaves
 * 6 sprigs thyme
