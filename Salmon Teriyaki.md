@@ -22,7 +22,7 @@ Original Recipe: https://www.lecremedelacrumb.com/one-pan-baked-teriyaki-salmon-
 * 1/4 cup packed brown sugar
 * 2 tablespoons honey
 * 1-2 tablespoons mirin
-* 1/4 cup cold water + 2 tablespoons corn starch
+* 1/4 cup cold water + 1 tablespoon corn starch
 * 2 teaspoons sesame seeds
 
 ## Instructions
