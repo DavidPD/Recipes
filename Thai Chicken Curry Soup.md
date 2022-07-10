@@ -1,3 +1,5 @@
+![56bb5fd8-d0a3-47a8-b387-5088c3f68389](https://user-images.githubusercontent.com/1680680/178164163-56d8bcad-263b-423a-9587-73994d5c1cbe.jpeg)
+
 Serves: serves 6 as a main course, 8-10 as a side dish
 Ingredients
 - 2 tablespoons red curry paste
